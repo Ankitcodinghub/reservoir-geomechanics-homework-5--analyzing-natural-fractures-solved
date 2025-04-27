@@ -1,0 +1,1 @@
+# reservoir-geomechanics-homework-5--analyzing-natural-fractures-solved
